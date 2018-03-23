@@ -8,3 +8,8 @@ Forums are at: http://worlds.outercraft.com/forum/index.php#c1
 If you want to use the data, just ask. We typically approve most personal and educational uses. Contributors are always welcome.
 
 If you are looking for the 3D planetary renderer, head over to http://forum.outerra.com/index.php?topic=1491.0
+
+
+
+http://www.r-chart.com/2016/10/map-of-middle-earth-map-above-was.html
+http://rpubs.com/bargava/map_of_middle_earth
